@@ -959,6 +959,6 @@ Pepe play Frogger
 
 dead Cantor be tossing
 
-choice the voices the lines in the static
+choices the voices the lines in the static
 
 trapped here with Kitty i journal in attic
