@@ -925,18 +925,4 @@ with math my abyss
 
 fuck up the profiter
 
-on walls i will piss
-
-for the record
-
-fuck the label
-
-over counter 
-
-under table
-
-biblical im feeling abel
-
-eve a bitch 
-
-she cain enable
+like calvin i piss
