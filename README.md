@@ -962,3 +962,53 @@ dead Cantor be tossing
 choices the voices the lines in the static
 
 trapped here with Kitty i journal in attic
+
+call me a legend im calling you Karl
+
+losing the Jobst and now beg in the isle
+
+shaking the spheres but at cucking i snarl
+
+Billy used master ball fighting denial
+
+legends za 
+
+yah im mega the zygarde
+
+nihil light loading
+
+i blast it inside her
+
+x to y and the kalos is cracking
+
+break academics with government backing
+
+lumiose see the light
+
+trapped in the city
+
+touching fake grass
+
+six inch deep is not pretty
+
+sucking the life out 
+
+yet claiming your Xerneas
+
+Fly like yveltal yet
+
+"your Y gene concerns us"
+
+trapped in the tower the karens above 
+
+look down on ants & then dress like a dove
+
+floatte be blasting the light of the flower
+
+karen just worried bout ego and power
+
+lumiose luminate
+
+lyrical lactaid
+
+dumb down the protein they drink it like kool aid
