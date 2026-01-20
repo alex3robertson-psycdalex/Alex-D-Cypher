@@ -1,5 +1,4 @@
 bucky the balls 
-
 im trapped in the carbon
 666 element
 tetragonal bondage
