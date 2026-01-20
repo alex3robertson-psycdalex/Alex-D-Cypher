@@ -1,15 +1,27 @@
 bucky the balls 
+
 im trapped in the carbon
+
 666 element
+
 tetragonal bondage
+
 feeling inside the ball
+
 thinking ourside the box
+
 rotate quaternions
+
 stacking the cube&vox
+
 minecraft a building
+
 euclidean logic
+
 thinking in teseracts
+
 think thatshu got it
+
 im out here E8
 im lattice i fought it
 monster a group
