@@ -16,7 +16,7 @@ im lattice i fought it
 monster a group
 monster inside me
 hyper symmetric
-the vortices try me
+the vortices try me 
 navier stoked 
 to break out the flow
 turbulent opulent
