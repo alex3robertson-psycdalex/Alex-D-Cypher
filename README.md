@@ -926,3 +926,39 @@ with math my abyss
 fuck up the profiter
 
 like calvin i piss
+
+
+day 2
+
+new day new flow
+
+
+security blanket
+
+derivative Linus
+
+sucking the thumb
+
+is immune system science
+
+kicking and whiffing cause women be scheming
+
+reclaim the Lucy now tripping with meaning
+
+bitches be bullying Freds and the Teddy
+
+Drake vape the Nick o teen
+
+mole like Ressiti
+
+animal crossing
+
+through Kirkshots be flossing
+
+Pepe play Frogger
+
+dead Cantor be tossing
+
+choice the voices the lines in the static
+
+trapped here with Kitty i journal in attic
