@@ -688,7 +688,7 @@ real gs move silent
 
 yet loud about insiGht
 
-into the poetic shadows i highlight
+into the poetic shadows i highliGht
 
 mathematic schematic
 
