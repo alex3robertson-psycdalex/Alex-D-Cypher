@@ -72,9 +72,9 @@ see the connection
 
 genetic dynamic
 
-snap on a beat and they slander with "manic"
+i snap on a beat and they slander with "manic"
 
-gamma irrational
+in gamma irrational
 
 factorial data
 
@@ -86,17 +86,21 @@ iota of danger
 
 and delta the eta
 
-see the equation
+i see the equation
 
-motivis prolific
+yall testing the beta
 
-mocking the modular 
+motivic prolific
+
+im mocking the modular 
 
 continuum math clique
 
+with stats i can bother her
+
 snapping the Lie group
 
-prime in an adic
+im prime in an adic
 
 hiding from suits
 
@@ -110,9 +114,9 @@ through the datura
 
 and cell walls i managed
 
-through the imaginary
+through the imagined
 
-forced it to complex
+i forced it to complex
 
 made infinite simple
 
@@ -120,23 +124,27 @@ you focused on Rolex
 
 poly the talent
 
-mono the marriage
+and mono the marriage
 
-petting the horse
+im petting the horse
 
-and burning the carriage
+and im burning the carriage
 
-carting the course
+im carting the course
 
-quantum the force
+and with quantum the force
 
-gravity 2 brained
+gravities 2 brained
+
+i pier off the shores
 
 white hole the membrane
 
-into the single and out through the anti
+fall into the single 
 
-upping the flow state
+and out through the anti
+
+without a slight tingle
 
 no limit for ante
 
@@ -146,13 +154,15 @@ quantum chronometer
 
 back through the graph hole
 
-collatz falling author
+collatzing the  author
 
 into the 12 d
 
-into renormal
+and into renormal
 
 but out of analysis
+
+proof is informal
 
 seeing the quartet
 
@@ -192,11 +202,11 @@ dimension and ages
 
 distinguish the rages
 
-into the brain the DXM bandage
+into the brain the DXM bandages
 
 without the Olneys
 
-and cautious of damage
+and cautious of damages
 
 into addiction i cope with the colors
 
