@@ -700,7 +700,7 @@ yet trapped in the attic
 
 journal a schizo an autist bipolar
 
-label the genius and dropkicm the door
+label the genius and backkick the door
 
 i never robbed back when i was a whore
 
