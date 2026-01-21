@@ -730,7 +730,7 @@ demons of insight and pleasure and war
 
 immortal in plague 
 
-in the deepest dark war
+in the galaxys core
 
 into the future a hammer a sigil
 
@@ -772,7 +772,7 @@ hr a demon in euclid dismissive
 
 making the lattice be silent submissive
 
-higher dimensions than pussy i live it
+higher dimensions than pussy where i live
 
 paradox
 
