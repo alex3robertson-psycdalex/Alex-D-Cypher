@@ -650,7 +650,7 @@ in arist and poet
 
 without the gym 
 
-i know my ego will blow it
+know my ego will blow it
 
 into the submit 
 
