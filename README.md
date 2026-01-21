@@ -4,7 +4,7 @@ im trapped in the carbon
 
 666 element
 
-tetragonal bondage
+tetragon bondage
 
 feeling inside the ball
 
@@ -906,13 +906,13 @@ yang mills a mass gap
 
 zeta i analyze
 
-im on X app
+im on the X app
 
 but google is all lies
 
 alphabet axis of power and euclid
 
-call them imaginary 
+call them imagined
 
 and they call you stupid
 
@@ -922,16 +922,19 @@ mental dialysis
 
 hooked to a moniter
 
-with math my abyss
+math as my own abyss
 
 fuck up the profiter
 
-like calvin i piss
+like calvin on them i piss
+
+
 
 
 day 2
 
-new day new flow
+
+
 
 
 security blanket
