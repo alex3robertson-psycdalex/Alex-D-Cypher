@@ -609,6 +609,7 @@ red nose the brown nose
 you think you can fix her
 
 im out here alpha omega remixer
+
 delta society
 
 gamma restrict her
@@ -649,7 +650,7 @@ in arist and poet
 
 without the gym 
 
-the ego will blow it
+i know my ego will blow it
 
 into the submit 
 
@@ -669,7 +670,7 @@ for evil i see the well
 
 into the curses and healing with verses
 
-into new ontological multiverses
+into new ontology multiverses
 
 healing the demons from cells inside cells
 
