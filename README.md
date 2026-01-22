@@ -1028,3 +1028,99 @@ lumiose luminate
 lyrical lactaid
 
 dumb down the protein they drink it like kool aid
+
+with the topology 
+
+stablish ontology
+
+cosmic in reference
+
+groupchat monoploy
+
+dominate consumate 
+
+in the discussion
+
+im cracking and flaying
+
+the mental obstruction
+
+i obfuscate rerelate
+
+complex analysis
+
+leafy an icon
+
+above and beside us
+
+drama o rama
+
+im froze futuama
+
+lightspeed the relative
+
+thousand year trauma
+
+snapping a murder
+
+they say jeffy damma
+
+mispell a name for the rhyme 
+
+fuck the honor
+
+fucking with oxford
+
+they ask for a comma
+
+lemma support me
+
+ride axiom llama
+
+snap and i crack
+
+sarah boone
+
+"blame the alcohol"
+
+suite the case back  
+
+for the contour of study hall
+
+audiotorium
+
+sit down and be quiet
+
+lyrical register illegal riot
+
+into the cosmic cant aee all the rages
+
+thinking of snapping spines
+
+smile for ages
+
+disrepution and ego inflation
+
+care about me second place is the nation
+
+Clavic run over her
+
+optical angular
+
+seeing the hangman noose
+
+karen i dangle her
+
+knot theory prophet 
+
+naughty a profit
+
+knotty proffessing
+
+and know that i got it
+
+sorry drunk af and going nuts on the beat
+
+alcohol vibrates my lyrical feat
+
+sit back bear witness to congitive feat
