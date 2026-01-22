@@ -1124,3 +1124,72 @@ sorry drunk af and going nuts on the beat
 alcohol vibrates my lyrical feet
 
 sit back bear witness to congitive feat
+
+crystal interiors 
+
+fractal inferiors
+
+worried bout cosmic rays
+
+breaking through telemeres
+
+into the data the info the storage
+
+into the the bears house and
+
+cryo the porridge
+
+into the dna 
+
+snapping like nuetron bombs
+
+seeing the butterfly effect 
+
+cascade in code that long
+
+into the basins of bases its basic
+
+worried but gravity
+
+wrong kind of space sick
+
+radiate space predate
+
+gamma factorial
+
+gamma ray bullets
+
+next gamete not boy or girl
+
+chromosome interspace
+
+no dna left intact
+
+ecretion disk gamma rays
+
+blast through and
+
+say "fuck your tact"
+
+
+fire in progress
+
+fire in future
+
+fire beside us
+
+interior peer through
+
+seeing the skeleton
+
+breaking the future cell
+
+too close to source
+
+have a demon core break through hell
+
+alpha and beta and ask for more data
+
+gamma cant Stirling
+
+asypmtote of zeta
