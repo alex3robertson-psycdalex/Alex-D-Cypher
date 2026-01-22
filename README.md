@@ -1121,6 +1121,6 @@ and know that i got it
 
 sorry drunk af and going nuts on the beat
 
-alcohol vibrates my lyrical feat
+alcohol vibrates my lyrical feet
 
 sit back bear witness to congitive feat
