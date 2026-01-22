@@ -1087,9 +1087,9 @@ suite the case back
 
 for the contour of study hall
 
-audiotorium
+audiotourium
 
-sit down and be quiet
+sit down be quiet
 
 lyrical register illegal riot
 
