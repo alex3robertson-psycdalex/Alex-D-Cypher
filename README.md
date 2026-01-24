@@ -1193,3 +1193,313 @@ alpha and beta and ask for more data
 gamma cant Stirling
 
 asypmtote of zeta
+
+into the musical
+
+blastzone its lyrical
+
+felling the rythym
+
+and feeling the spirt pull
+
+feeling anxiety
+
+into society
+
+trynna say fuck it
+
+no breakdown inside of me 
+
+kicking the bucket 
+
+and listing the can
+
+making a history 
+
+written in sand
+
+entropy get to ya
+
+boltzmann a brain
+
+compared to that datura 
+
+horrors are lame
+
+smoking the floor weed
+
+the celing cat hissing
+
+into the purring 
+
+my Missy im missing
+
+into the tearducts 
+
+and out throught spinal drip
+
+tears are just fake right
+
+they wanna give bud a nip
+
+navier stokes 
+
+see the fluid equating 
+
+i operate higher in chaos im sayin
+
+freezing and weezing 
+
+in haki i bake
+
+you falling for idols
+
+still trapped in the wake
+
+lyrics now flowing
+
+you think im ironic
+
+i twist em through rythyms
+
+they come out iconic
+
+im charging my battery
+
+the flow is ionic
+
+i prosper you grasp her 
+
+your views will be chronic
+
+youll end up like casper
+
+im solid tectonic
+
+speaking of gemstones
+
+a second grade phonic
+
+worried about diamonds
+
+and look down on women
+
+think theres power in rocks
+
+bitch you think the same system
+
+laugh bout astrology
+
+at the casino
+
+bring daughters to church
+
+and fuck hookers in reno
+
+miners and minors are rocks
+
+just for chiseling
+
+HR bitch worried bout bears
+
+now we Grizzling
+
+alex go snap on a treadmill 
+
+no rizzling
+
+deflect the covetous stares
+
+pussies drizzling
+
+anger in focus
+
+and anger in cardio
+
+karen proffessing
+
+go snap on the honor roll
+
+now i be pushing 
+
+real deep in the chaos hole
+
+idactic in hatred
+
+instantaneous rage recall
+
+fuck with the dxm 
+
+you numb like study hall
+
+call it nirvanna
+
+but dont feel like heaven at all
+
+sellout a poet 
+
+and before ya know it
+
+you paying the rent
+
+ticking time bomb to blow it
+
+i vent and i steam
+
+let my emotions dream
+
+and the concepts 
+
+of fears line up fast
+
+form a team
+
+im interdimensional
+
+seeing the checkerboard
+
+lattice to E8
+
+and flowing it backward
+
+they call me divergent
+
+i outlie continuum
+
+i know what divergent means
+
+i converge without a sum...
+
+the incel 
+
+in his own cell
+
+should break through bars
+
+i foretel
+
+if he wants
+
+to meet his wishes
+
+and he wonders
+
+"why the girls dismiss us"
+
+i see the pattern 
+
+while im serving dishes
+
+cooking these disses 
+
+they feel so delicious
+
+hope to help with a complex mission
+
+metal and solid geared for admission
+
+in college 
+
+with knowledge 
+
+and a peerless vision
+
+orthogonal
+
+ontological
+
+nuclear cell division
+
+prime yet
+
+cut fresh for the fission
+
+snap alone
+
+broken by the system
+
+trapped inside 
+
+locked in the logical
+
+feels like shit
+
+call it scatalogical
+
+bitch
+
+im snapping on new harmonic
+
+pushing through
+
+wish i had some chronic
+
+liver pulsing
+
+but without tonic
+
+gym followed gin
+
+isnt that ironic
+
+tectonic numonic
+
+im flexing my insight
+
+worried bout predictions
+
+i have infinite foresight
+
+forebrain 4 sight 
+
+4 chan alt right
+
+left a horsehoe print
+
+on white-blue flags
+
+i smoke the fags
+
+i know the issue
+
+blowing word snot on 
+
+the handkerchief you
+
+drop expecting i will help you
+
+bitch i see straight through 
+
+the makeup and the lingerie 
+
+because guess what basic bitch
+
+i wear the same shit every day
+
+you think karen from HR
+
+can decieve a great deceiver
+
+she all smug and then she broken
+
+with her box wine when i leave her
+
+bitch my anima loves mirrors
+
+call it chiral biral fears
+
+flip a morphine
+
+to a dex
+
+ro meth orhpan
+
+no regrets
+
+got no onleys 
+
+its not opiod
+
+datura over heroin 
+
+i flex
